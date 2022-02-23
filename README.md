@@ -1,5 +1,5 @@
 ## Im Erick a Mobile Developer
 
-I code for a living and its my passion
+Coding its my passion and my job, jaja
 
 ### About me
