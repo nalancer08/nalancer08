@@ -1,5 +1,3 @@
-## Im Erick a Mobile Developer
+## Im Erick a Software Engineer
 
 Coding its my passion and my job, jaja
-
-### About me
